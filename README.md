@@ -4,3 +4,4 @@
 Do project things properly🔎 On time📋 And help them work🎀
 
 Email: j.largo97@yandex.com
+Telegram: https://t.me/DXvlad
